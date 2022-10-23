@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SpongyFlafy
+- 👀 I’m interested in tech
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me ...
+- 😁 Smile! I'm not gonna hurt you!
